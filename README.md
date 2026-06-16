@@ -1,5 +1,5 @@
 # Smriti-Bhattacharjee
-# Hi, I'm Smriti Bhattacharjee 👋
+# Hi, I'm Smriti Bhattacharjee 
 
 ## About Me
 
